@@ -1,7 +1,7 @@
-# 📁[Click To Download](https://www.mediafire.com/folder/frdmuiawu3i6g)
+* ***📁[Download](https://www.mediafire.com/folder/frdmuiawu3i6g)***
 
 
-## System Requirements:
+ System Requirements:
 
 ✅AMD and Intel CPU Supported
 
@@ -10,7 +10,7 @@
 ✅Every Windows Build Supported
 
 
-## 📌Information:
+ 📌Information:
 
 🔥If you can’t download / install program , you need to:
 
